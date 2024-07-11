@@ -1,3 +1,2 @@
-Code: You
-Kentucky Pre-Work 
-Marquis Huffman
+I am Marquis Huffman. This is Pre-Work for Code: You in Kentucky.
+
